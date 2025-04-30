@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://i.imgur.com/dBaSKWF.gif" height="2000" width="100%">
+  <img src="https://i.imgur.com/dBaSKWF.gif" height="200" width="100%">
 </p>
 🇰🇪🇰🇪🇰🇪🇰🇪🇰🇪😂😂😂😂😂😂🚀🚀🚀🚀😏😏🔥🔥🔒🔒🚁🚁🤕🤕😅😅⛓️⛓️🤣🤣🕊️🕊️🔫🔫🔏🔏☠️☠️🌟🌟⚡⚡👾👾✅✅🫳🫳🤑🤑🤦‍♂️🤦‍♂️👉👉🤧🤧✊✊🖕🖕🤗🤗💯💯👨‍💻👨‍💻💻💻
 
