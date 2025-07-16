@@ -34,7 +34,7 @@ You can click the Preview link to take a look at your changes.
   </tr>
 </table>
 <p align="center">
-  <img align="center" src="https://www.codewars.com/users/CinnamonExpresso/badges/small"></img>
+  <img align="center" src="https://www.codewars.com/users/SilverTosh/badges/small"></img>
 </p>
 
 
